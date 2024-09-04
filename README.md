@@ -6,7 +6,3 @@ My primary interests lie in leveraging Machine Learning for impactful applicatio
 Aadarsh080102/Aadarsh080102 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-## I fuckers I am the king of this world
-- one because I am from FUCKING IIT BOMBAY
-- Second I am from FUCKING COLUMBIA UNI
-- IVY mere laund pee
